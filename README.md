@@ -22,5 +22,4 @@ edit IP to your IP
 
 BATCHED APK E.G MODDED APK
 
-Not avaliable yet
-
+https://drive.google.com/file/d/1KpKBA-jaJkKnDedHXFbkIZVJ8B8mHe_m/view?usp=drivesdk
